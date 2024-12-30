@@ -1,1 +1,1 @@
-but bot week 
+but not week 
